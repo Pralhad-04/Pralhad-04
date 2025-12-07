@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming. 
 - 🌱 I’m currently learning Bsc computer Science. 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me pankajhodage03@gmail.com
+- 📫 How to reach me pralhadhodage47@gmail.com
 - 😄 Pronouns: Pralhad
 - ⚡ Fun fact: ...
 
